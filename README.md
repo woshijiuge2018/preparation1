@@ -17,5 +17,3 @@ https://u18522779.pipipan.com/fs/18522779-313294959
 snap旧版无需改繁体：
 https://u18522779.pipipan.com/fs/18522779-313294971
 
-Android谷歌安装器：
-https://u18522779.pipipan.com/fs/18522779-313295667
