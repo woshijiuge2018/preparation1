@@ -1,6 +1,6 @@
 直接下载到桌面就行。
 
-[ PuTTY_0.67.0.0.exe]( https://www.bbaaz.com/forum.php?mod=attachment&aid=MzR8OGQ2MWZjYTV8MTU0MDYwMDg1OXwwfDIy)
+[ PuTTY_0.67.0.0.exe]( https://www.lanzous.com/i27qitc)
 
 (518.91 KB, 下载次数: 4592)
 
